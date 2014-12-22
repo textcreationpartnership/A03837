@@ -35,11 +35,6 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-ILLVSTRISSIMI
-PRINCIPIS HENRICI
-IVSTA.VBI ET SPONSORVM
-EPITHALAMIVM; ET
-consolatio; & exhortatio ad
 
 1. ILLVSTRISSIMO
 PRINCIPI
